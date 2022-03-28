@@ -1,0 +1,1 @@
+# Analisis-Data-GDP-per-capita-through-Life-Satisfaction
